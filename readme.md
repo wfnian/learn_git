@@ -1,7 +1,9 @@
 # overview ![](https://img.shields.io/badge/property-personal%20repository-brightgreen.svg)
 Git is a distributed version control system.  
 Git is free software distributed under the GPL.  
-Git has a mutable index called stage.  
+Git has a mutable index called stage.   
+
+---
 
 ## I... come back,ye...yech,looking for a job.  (imitate the tone of Rick).
 ```
@@ -14,6 +16,9 @@ i lose who i am an became part of died.
 your's and nobody's else.
 Iiiiiiii... i just tired , i wanna sleep ,i just nedd close my eyes.
 ```
+
+# OK~!
+### 老子现在一无所有，老子什么都没了，老子什么都没了，[哔]的，[哔*&￥]的，就这样一切都没了。M/*****F/******R
 ![](https://img3.doubanio.com/view/photo/l/public/p2520557733.webp)
 ![](https://img1.doubanio.com/view/photo/l/public/p2453651608.webp)
 ![]()![]()![]()
