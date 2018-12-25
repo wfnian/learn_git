@@ -22,3 +22,6 @@ Iiiiiiii... i just tired , i wanna sleep ,i just nedd close my eyes.
 ![](https://img3.doubanio.com/view/photo/l/public/p2520557733.webp)
 ![](https://img1.doubanio.com/view/photo/l/public/p2453651608.webp)
 ![]()![]()![]()
+
+
+也罢也罢，大多数对老子来说已经不重要了。
