@@ -5,7 +5,7 @@ Git has a mutable index called stage.
 
 ---
 
-## I... come back,ye...yech,looking for a job.  (imitate the tone of Rick//好像您踏进私人领域了哦).
+## I... come back,ye...yech,looking for a job.  (imitate the tone of Rick//).
 ```
 because nobody's special to him.
 not even himself.
@@ -17,7 +17,6 @@ your's and nobody's else.
 Iiiiiiii... i just tired , i wanna sleep ,i just nedd close my eyes.
 ```
 
-## 老子现在一无所有，老子什么都没了，老子什么都没了，[哔]的，[哔*&￥]的，就这样一切都没了。
 |---|---|
 |--- |---|
 | ![](https://img3.doubanio.com/view/photo/l/public/p2520557733.webp)| ![](https://img1.doubanio.com/view/photo/l/public/p2453651608.webp)|
@@ -25,5 +24,3 @@ Iiiiiiii... i just tired , i wanna sleep ,i just nedd close my eyes.
 
 
 
-
-也罢也罢，大多数对老子来说已经不重要了。
