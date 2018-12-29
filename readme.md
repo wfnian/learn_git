@@ -20,7 +20,7 @@ Iiiiiiii... i just tired , i wanna sleep ,i just nedd close my eyes.
 |---|---|
 |--- |---|
 | ![](https://img3.doubanio.com/view/photo/l/public/p2520557733.webp)| ![](https://img1.doubanio.com/view/photo/l/public/p2453651608.webp)|
-| ![](https://pic2.zhimg.com/80/v2-9c47c4db23957c9660a1be0ea06d283d_hd.jpg)| |
+| ![]()| |
 
 
 
