@@ -1,5 +1,5 @@
 > #### 能看到这里，已经很不容易了，首先感谢你呀。欢迎来到这个小彩蛋。
 
->这些话是我的胡言乱语，我也不知道为什么要这样说，既然说都说了，那就这样吧。
-*Wubba Lubba dub dub*
->。
+![](https://pic3.zhimg.com/80/v2-17da0286168d31261b593c93e44b6fee_hd.jpg)
+
+[。](https://www.zhihu.com/question/273943837/answer/400360714)
