@@ -16,6 +16,8 @@ i lose who i am an became part of died.
 your's and nobody's else.
 Iiiiiiii... i just tired , i wanna sleep ,i just nedd close my eyes.
 ```
+---
+## 2018年我和生活打了一架，他死了我也死了。
 
 |---|---|
 |--- |---|
