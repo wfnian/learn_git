@@ -2,4 +2,4 @@
 
 ![](https://pic3.zhimg.com/80/v2-17da0286168d31261b593c93e44b6fee_hd.jpg)
 
-[。](https://www.zhihu.com/question/273943837/answer/400360714)
+[。](wfnian.top)
