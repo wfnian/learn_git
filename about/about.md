@@ -1,3 +1,7 @@
-# Glassy Vesper
+# 不论你是谁，谢谢你点进来，不过你真的适合当侦探呢，这么个小句号也能点进来，我也是无聊，总喜欢在自己所有网站上加一个彩蛋。
+
 ---
-### 删了删了，所有的美好不过源于自己的想象[。](https://github.com/wfnian/learn_git/blob/master/bin/bin/utils/Vesper/Vesper.md)
+
+### 都删了删了，不习惯于朋友圈和微博的我只是累的就来这里吐槽一下，就好啦，然后继续接过生活的面具上路罢了。
+
+## 嗯嗯 wubba lubba dub dubs。
